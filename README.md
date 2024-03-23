@@ -2,7 +2,7 @@
 - 👀 I’m interested in ur mom
 - 🌱 I’m currently doing ur mom
 - 🎩 top class dumbass
-- 😍 kinda 𝑓𝑟𝑒𝑎𝑘𝑦
+- 😍 kinda ℱ𝓇ℯ𝒶𝓀𝓎
 - 😄 Pronouns: dumb/ugly
 - ⚡ Fun fact: im an idiot🙂
 
